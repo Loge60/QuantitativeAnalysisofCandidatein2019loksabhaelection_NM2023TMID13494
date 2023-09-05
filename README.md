@@ -1,0 +1,1 @@
+# QuantitativeAnalysisofCandidatein2019loksabhaelection_NM2023TMID13494
